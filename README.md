@@ -1,2 +1,2 @@
 # trinome
-pour mathias
+pour mathias en 16min
